@@ -26,3 +26,7 @@ Apaixonado por tecnologia, programação e inovação. Tenho experiência em des
 📌 **GitHub:** [https://github.com/AdrainRazini]  
 
 Sempre explorando novas tecnologias e desafios! 🚀
+
+
+
+![](https://gifdb.com/images/high/dark-violet-light-phonk-9jw6zy7wxa0b533t.webp)
